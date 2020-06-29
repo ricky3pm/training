@@ -10,3 +10,4 @@ kucing oren..
 kucing ini punya hobi mandi
 oleh karena itu nenek menamainya sumandi
 ia dibesarkan seperti anak sendiri
+Suatu hari cucu nenek melihat sesuatu yang berkilau di dalam semak-semak 
