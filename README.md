@@ -8,3 +8,4 @@ dipinggir hutan belantara
 Dia tinggal bersama cucunya dan seekor kucing
 kucing oren..
 kucing ini punya hobi mandi
+oleh karena itu nenek menamainya sumandi
