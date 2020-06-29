@@ -7,4 +7,4 @@ Ada seorang nenek tinggal sendirian
 dipinggir hutan belantara
 Dia tinggal bersama cucunya dan seekor kucing
 kucing oren..
-tes 123
+kucing ini punya hobi mandi
